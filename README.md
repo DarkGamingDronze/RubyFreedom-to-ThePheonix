@@ -4,12 +4,14 @@ The server will which to ThePhenoixRealms for a few days.
 reuben4545 can take control back over to RubyFreedom if s/he wants to or ThePheonixBlader (taahanis) violates this contract..
 If ThePheonixBlader(taahanis) breaks this contract then ThePheonix("Server name is not choosen yet") will be GONE. But for this day foward The contract is Vailded unless taahanis or reuben4545 or falceso windraw from this contract.
 
-Sign for reuben4545:
+Signed:
+reuben4545
 
 
 
 
-Sign for ThePheonixBlader:
+Signed:
+ThePheonixBlader
 
 
 
