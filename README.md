@@ -3,7 +3,7 @@ This is the Contract regarding a temporary switch with RubyFreedom and ThePhoeni
 
 
 
-Signed: reuben4545
+[Cross this out]Signed: reuben4545[Cross that out <------] I do NOT Accept this contract. -reuben4545
 
 
 
