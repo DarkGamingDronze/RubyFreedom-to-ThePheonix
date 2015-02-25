@@ -1,23 +1,17 @@
 # RubyFreedom-to-ThePheonix
-This is the Contract regarding a tempory switch with RubyFreedom and ThePhoenix("Server  name is not choosen yet").
-The server will which to ThePhenoixRealms for a few days.
-reuben4545 can take control back over to RubyFreedom if s/he wants to or ThePheonixBlader (taahanis) violates this contract..
-If ThePheonixBlader(taahanis) breaks this contract then ThePheonix("Server name is not choosen yet") will be GONE. But for this day foward The contract is valid unless taahanis or reuben4545 or falceso withdraw from this contract.
-
-Signed:
-reuben4545
+This is the Contract regarding a temporary switch with RubyFreedom and ThePhoenix("Server name is not choosen yet"). The server will which to (Name not chosen) for a few days. reuben4545 can take control back over to RubyFreedom if s/he wants to or ThePheonixBlader (taahanis) violates this contract.. If ThePheonixBlader(taahanis) breaks this contract then ThePheonix("Server name is not chosen yet") will be GONE. But for this day forward The contract is valid unless taahanis or reuben4545 or falceso withdraw from this contract.
 
 
 
-
-Signed:
-ThePheonixBlader
+Signed: reuben4545
 
 
 
-Authorised by:
-falceso
+Signed: ThePheonixBlader
 
 
-Vaild: 2/23/15
-Edited: 2/22/15
+
+Authorized by: falceso
+
+
+Valid: 2/25/15 Edited: 2/25/15
