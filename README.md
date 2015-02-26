@@ -1,13 +1,11 @@
-# RubyFreedom-to-ThePheonix
-This is the Contract regarding a temporary switch with RubyFreedom and ThePhoenix("Server name is not choosen yet"). The server will which to (Name not chosen) for a few days. reuben4545 can take control back over to RubyFreedom if s/he wants to or ThePheonixBlader (taahanis) violates this contract.. If ThePheonixBlader(taahanis) breaks this contract then ThePheonix("Server name is not chosen yet") will be GONE. But for this day forward The contract is valid unless taahanis or reuben4545 or falceso withdraw from this contract.
+# The above agreement has been removed and cancelled due to one or more of the people who signed to take back the contract, the third signer has refused to declare the rights to the other two. But as the majority have decided otherwise, this has been cancelled, Do NOT WHATSOEVER re-add the contract and false-sign the contract or you will be subject to face the law.
 
 
+Signed: reuben4545
 
-[Cross this out]Signed: reuben4545[Cross that out <------] I do NOT Accept this contract. -reuben4545
+Signed: TheOp
 
-
-
-Signed: ThePheonixBlader
+Signed: Elmon11
 
 
 
